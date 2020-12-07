@@ -1,1 +1,0 @@
-# centrol-pharmacy
